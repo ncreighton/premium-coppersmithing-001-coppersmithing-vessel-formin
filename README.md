@@ -1,0 +1,2 @@
+# premium-coppersmithing-001-coppersmithing-vessel-formin
+Tired of lopsided bowls and uneven rims that ruin hours of work? The Coppersmithing &amp; Vessel Forming Master Studio is your shortcut to flawless, symmetrical vessel forms—every single time.  This isn't another generic coppersmithing guide. It's a focused system that solves the #1 frustration of intermediate coppersmiths: achieving perfect vessel sym
